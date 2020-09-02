@@ -14,7 +14,7 @@ The time when they used to play in gymkhana till 7.00 PM, when they used to fini
 
 Roughly 3 months left, I think they can experience all those memories again, but…
 
-![Photo by Dylan Gillis | Unsplash](https://images.unsplash.com/photo-1517048676732-d65bc937f952?ixlib=rb-1.2.1&auto=format&fit=crop&w=1650&q=80)
+![Photo by Dylan Gillis - Unsplash](https://images.unsplash.com/photo-1517048676732-d65bc937f952?ixlib=rb-1.2.1&auto=format&fit=crop&w=1650&q=80)
 
 **
 
