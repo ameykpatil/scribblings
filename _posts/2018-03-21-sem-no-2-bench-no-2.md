@@ -3,7 +3,7 @@ layout: post
 title: Sem No. 2 - Bench No. 2
 ---  
 **
-***This post is a collection of the experiences from my initial semesters of engineering school. This is about 5 guys, with me being one of them. It revolves around the life & the fun we used to have back then. I had written this long back when I was in the final year of the engineering school. You may not understand or relate to each & every thing. But this will surely bring back some of your high-school memories. Glossary at the end of the post should help clear some of the terms.***
+*This post is a collection of the experiences from my initial semesters of engineering school. This is about 5 guys, with me being one of them. It revolves around the life & the fun we used to have back then. I had written this long back when I was in the final year of the engineering school. You may not understand or relate to each & every thing. But this will surely bring back some of your high-school memories. Glossary at the end of the post should help clear some of the terms.*
 **
 
 Once upon a time, they used to sit on the 2nd bench. It was the time when there used to be a strong racism among them and two extreme racist (black and white) used to win all the time. It was the time when the ***latecomer*** had only one reason — Palghar. The time when ***gymer*** used to click his own photos and the ***genius*** one used to work hard on it to make it real. When the ***thinner*** boy and the ***taller*** one used to compete in Drawing Practicals… in all the domains.
@@ -32,4 +32,4 @@ Roughly 3 months left, I think they can experience all those memories again, but
 
 **
 
-***[*This post was originally published by me on Facebook as a note.](https://www.facebook.com/notes/amey-patil/sem-no-2-bench-no-2/151333104921581/)***
+*[*This post was originally published by me on Facebook as a note.](https://www.facebook.com/notes/amey-patil/sem-no-2-bench-no-2/151333104921581/)*
